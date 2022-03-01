@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @kazumikin
 - 👀 I’m interested in nothing
 - 🌱 I’m currently trying to learn different languages
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me? dm me at insta or discord
 - ❤️ insta: still makeing an Instagram
 - ❤️ discord: GhOsT.#6554
